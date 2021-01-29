@@ -1,0 +1,1 @@
+This is a favorite recipie of mine but it is eggless as I have an egg allergy! I've tried many chocolate cake recipes and this is my most sucessful one! :)
